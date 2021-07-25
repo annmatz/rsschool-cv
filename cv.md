@@ -48,5 +48,5 @@ Expert of payroll and HR accounting in the program 1C
 
 #### Samara State Social and Pedagogical University
 
-22017-2021
+2017-2021
 *Master in Pedagogical Education*
